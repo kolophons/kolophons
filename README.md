@@ -4,7 +4,7 @@ also known as colophony or Greek pitch (Latin: pix graeca), is a resinous materi
 In addition to industrial applications such as in varnishes, adhesives, and sealing wax, rosin is used with string instruments on the bow hair to enhance its ability to grip and sound the strings, and it provides grip in various sports and activities. Rosin also serves as an ingredient in medicinal and pharmaceutical formulations and can cause contact dermatitis or occupational asthma in sensitive individuals. It is an FDA approved food additive.
 [1](https://en.wikipedia.org/wiki/Rosin)
 
-## Colophon (city)
+## Kolophon (city)
 (/ˈkɒləˌfɒn, -fən/; Ancient Greek: Κολοφών, romanized: Kolophṓn) was an ancient city in Ionia. Founded around the end of the 2nd millennium BC, it was likely one of the oldest of the twelve cities of the Ionian League. It was located between Lebedos (120 stadia to the west) and Ephesus (70 stadia to its south). Its ruins are south of the town Değirmendere in the Menderes district of İzmir Province, Turkey.
 
 The city's name comes from the word κολοφών, "summit", (which is also the origin of the bibliographic term "colophon", in the metaphorical sense of a 'crowning touch',) as it was sited along a ridgeline. The term colophony for rosin comes from the term colophonia resina (Ancient Greek: Κολοφωνία ῥητίνη Kolophōnia rhētinē), resin from the pine trees of Colophon, which was highly valued for increasing friction of the bow hairs of stringed musical instruments.
